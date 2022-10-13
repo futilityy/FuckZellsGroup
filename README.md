@@ -1,2 +1,0 @@
-# FuckZellsGroup
-bypass
